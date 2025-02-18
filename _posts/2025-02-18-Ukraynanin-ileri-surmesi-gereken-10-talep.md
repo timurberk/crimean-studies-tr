@@ -16,27 +16,20 @@ Ukrayna'nın barış görüşmeleri sırasında ileri sürmesi gereken 10 talep:
 9. Rusya'nın yasadışı askeri saldırganlığının Ukrayna'da yol açtığı yıkımın yeniden inşası için Rusya'dan 500 milyar dolar tazminat talep ediyoruz.
 10. Putin'in faşist rejimi tarafından Ukrayna halkına karşı işlenen 140.000 Rus savaş suçu için adalet talep ediyoruz; bunun için öncelikle UCM tarafından tutuklama emri çıkarılan Rus siyasi liderler, gazeteciler ve subayların listesinin genişletilmesini ve gıyaben yargılamaların yapılmasını; ikinci olarak da Avrupa Konseyi himayesinde Rusya'yı saldırganlık suçu işlemekten yargılayacak özel bir mahkemenin hızla kurulmasını talep ediyoruz.
 
-https://x.com/TarasKuzio/status/1891796989852938694
+Kaynak: [https://x.com/TarasKuzio/status/1891796989852938694](https://x.com/TarasKuzio/status/1891796989852938694)
 
-@LucanWay
+İmza koyanlar:
 
-@FrancisDearnley
-
-@irgarner
-
-@jajecznyk
-
-@sbandera
-
-@StefanKrywawych
-
-@skudelia
-
-@PopovaProf
-
-@OxanaShevel
-
-@UmlandAndreas
-
-@FHeisbourg
+- [@TarasKuzio](https://x.com/TarasKuzio)
+- [@LucanWay](https://x.com/LucanWay)
+- [@FrancisDearnley](https://x.com/FrancisDearnley)
+- [@irgarner](https://x.com/irgarner)
+- [@jajecznyk](https://x.com/jajecznyk)
+- [@sbandera](https://x.com/sbandera)
+- [@StefanKrywawych](https://x.com/StefanKrywawych)
+- [@skudelia](https://x.com/skudelia)
+- [@PopovaProf](https://x.com/PopovaProf)
+- [@OxanaShevel](https://x.com/OxanaShevel)
+- [@UmlandAndreas](https://x.com/UmlandAndreas)
+- [@FHeisbourg](https://x.com/FHeisbourg)
 
