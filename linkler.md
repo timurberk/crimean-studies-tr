@@ -23,7 +23,7 @@ Ayrıntılı bilgi için Vikipedi'de [Archive.today](https://en.wikipedia.org/wi
 Vikipedi'yi sıkça kullanıyorsanız bu siteyi biliyorsunuzdur. Birçok güzel web sitesinin yıllar sonra kapandığına şahit oluyoruz. Bu durumda Archive.org imdadımıza yetişiyor. Eğer ilgili web sitesi arşivlenme kapsamına girdiyse farklı tarihlerdeki kopyalarına erişim sağlayabiliyoruz.
 
 
-## Mail Listler
+## Ukrayna Çalışmaları İle İlgili Kuruluşlar, Platformlar, Bültenler
 
 ### [Eastern Europe - Analytical Digest Series](https://css.ethz.ch/en/publications/eastern-europe-analytical-digest-series.html)
 
@@ -39,4 +39,10 @@ H-Ukraine, Ukrayna çalışmaları alanına bilimsel katkıları teşvik etmeyi 
 
 [https://networks.h-net.org/h-ukraine](https://networks.h-net.org/h-ukraine)
 
+---
 
+### [Die Deutsch-Ukrainische Akademische Gesellschaft e.V.](https://ukrainet.eu/about/)
+
+Alman-Ukrayin Akademik Topluluğu (Die Deutsch-Ukrainische Akademische Gesellschaft e.V.) 2016 yılında Almanya Berlin'de kâr amacı gütmeyen bir dernek kurulmuştur. Bülten aboneliği mevcut. 2023 ve 2024'te 4'er bülten yayınladılar. 
+
+https://ukrainet.eu/about/
